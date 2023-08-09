@@ -1,0 +1,1 @@
+# wihagathumbnails.com
